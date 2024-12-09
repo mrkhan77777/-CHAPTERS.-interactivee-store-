@@ -1,8 +1,8 @@
  -CHAPTERS.-interactivee-store-
 
-**[CILICK HERE TO GET STARTED>>>>>](https://cutt.ly/4eZLsCCU)**
+**[CILICK HERE TO GET STARTED>>>>>](https://cutt.ly/VeZfBosO)**
 
-**[CILICK HERE TO GET STARTED>>>>>](https://cutt.ly/4eZLsCCU)**
+**[CILICK HERE TO GET STARTED>>>>>](https://cutt.ly/VeZfBosO)**
 
 Chapters: Interactive Stories
 
